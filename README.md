@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @fl4m30z3k
+- 👀 I’m interested in programming.
+- 🌱 I’m currently learning programming.
+- 💞️ I’m looking to collaborate with discord.
+- 📫 How to reach me discord Flame (#7123).
